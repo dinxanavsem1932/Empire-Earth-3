@@ -211,4 +211,4 @@ Empire Earth 3 is provided as a complete free version with all features and upda
 Download Empire Earth 3 now and step into the shoes of a commander throughout history!
 
 ---
-**Last updated:** 2026-09-23 19:31:05 UTC
+**Last updated:** 2026-09-23 22:46:01 UTC
